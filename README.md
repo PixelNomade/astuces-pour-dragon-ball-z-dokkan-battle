@@ -15,7 +15,7 @@
 
 <p>Grâce à notre générateur, chaque joueur peut améliorer considérablement son expérience de jeu en accédant à des <strong>astuces pour DRAGON BALL Z DOKKAN BATTLE</strong> fiables et sécurisées. Ne perdez plus de temps à attendre ou à grinder pendant des heures : prenez le contrôle de votre aventure maintenant et devenez un véritable stratège dans l’univers de DRAGON BALL Z DOKKAN BATTLE.</p>
 
-# 🔴🔴 **[👉 Cliquez ici pour télécharger les astuces pour DRAGON BALL Z DOKKAN BATTLE](https://tinyurl.com/GarMobile)** 🔴🔴
+# 🔴🔴 **[👉 Cliquez ici pour télécharger les astuces pour DRAGON BALL Z DOKKAN BATTLE](https://tinyurl.com/PixelNomade)** 🔴🔴
 
 <h2>Les ressources disponibles avec notre générateur</h2>
 
@@ -93,7 +93,7 @@
 
 <p><strong>Faites comme les meilleurs joueurs : cliquez maintenant sur le bouton ci-dessous et obtenez vos ressources illimitées gratuitement.</strong> Boostez votre compte, accélérez votre progression et vivez une expérience de jeu sans pareille grâce à nos <strong>astuces pour DRAGON BALL Z DOKKAN BATTLE</strong>.</p>
 
-# 🔴🔴 **[👉 Cliquez ici pour télécharger les astuces pour DRAGON BALL Z DOKKAN BATTLE](https://tinyurl.com/GarMobile)** 🔴🔴
+# 🔴🔴 **[👉 Cliquez ici pour télécharger les astuces pour DRAGON BALL Z DOKKAN BATTLE](https://tinyurl.com/PixelNomade)** 🔴🔴
 
 <p>Si vous cherchez un moyen rapide, simple et sécurisé d’améliorer votre progression dans le jeu, nos <strong>astuces pour DRAGON BALL Z DOKKAN BATTLE</strong> sont la solution idéale. Grâce à des ressources illimitées, une interface conviviale et une compatibilité totale avec tous les appareils, vous avez toutes les cartes en main pour vivre l’expérience ultime.</p>
 
